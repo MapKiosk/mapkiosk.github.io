@@ -1,0 +1,1 @@
+# mapkiosk.github.io
